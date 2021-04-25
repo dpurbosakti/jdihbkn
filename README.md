@@ -1,0 +1,2 @@
+# jdihbkn
+ belajar
